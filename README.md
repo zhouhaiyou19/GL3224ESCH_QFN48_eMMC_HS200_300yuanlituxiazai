@@ -1,0 +1,1 @@
+# GL3224ESCH_QFN48_eMMC_HS200_300yuanlituxiazai
